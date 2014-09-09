@@ -16,6 +16,7 @@ List of remarkable tunes
 - Julio Bashmore
 - Dread MC - Trippin (Jakes Remix)
 - DJ Earl, Time (footwork)
+- Pearson Sound - Blanked
 
 ### Hiphop
 
@@ -32,7 +33,8 @@ List of remarkable tunes
 - Forsaken - Taiko Riddim (a special technique of shadow boxing)
 - Breton - RDI (Girl Unit Remix) 
 - Asusu - Velez (A Made Up Sound Remix 2 )
-
+- Zinc - Blunt Edge
+- Mr Lager feat Alys Be - Tell Me
 
 ## Closing
  
